@@ -55,9 +55,9 @@
 ---
 
 ## 📫 Contact Me
-- 📧 Email: **your-email@example.com**  
-- 🌐 Portfolio: *Coming Soon*  
-- 🔗 LinkedIn: *your-linkedin-profile*  
+- 📧 Email: **mdabusayedhasan555@gmail.com**  
+- 🌐 Portfolio: *https://www.facebook.com/profile.php?id=61578207455429*  
+- 🔗 LinkedIn: *https://www.linkedin.com/in/abu-shahid-1299573b3/*  
 
 ---
 
